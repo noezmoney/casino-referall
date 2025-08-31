@@ -1,2 +1,2 @@
 # casino-referall
-links for casinos i recommend
+i dont know what im doing
